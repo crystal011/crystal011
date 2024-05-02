@@ -2,7 +2,7 @@
 
 - 💬 Ask me about **Anything Web Related!**
 
-- 📫 How to reach me **sondusjameel9314@gmail.com**
+- 📫 How to reach me **tanweijie0623@gmail.com**
 
 - ⚡ Fun fact; **I love coffee, and beer.**
 
